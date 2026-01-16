@@ -1,0 +1,2 @@
+# FortuneX-
+Fortunex official website
